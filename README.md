@@ -14,4 +14,4 @@
   <li>8.三端(windows,Android,IOS)一键目前正在开发阶段预计半年后投入正式使用</li>
 </ul>
 
-<a rel="nofollow noopener" href="[[https://0be.net/]()](https://hk.0be.net/#/register?invcode=sssss)" target="_blank"> 快冲云 – 性价比最佳</a>
+<a rel="nofollow noopener" href="https://hk.0be.net/#/register?invcode=sssss" target="_blank"> 快冲云 – 性价比最佳</a>
