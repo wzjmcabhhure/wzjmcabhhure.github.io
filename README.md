@@ -15,3 +15,4 @@
 </ul>
 
 <a rel="nofollow noopener" href="https://hk.0be.net/#/register?invcode=sssss" target="_blank"> 快冲云 – 性价比最佳</a>
+<h2>现在注册 送5G高速无任何限制体验流量，赶快冲~</h2>
